@@ -1,2 +1,6 @@
 # hello-world
 knowledge_box
+Hi special one
+I am a unique breed trying to know who I am
+I just flew in from Jupiter, I want to know what you guys are doing on the Earth...
+Let's start with you reading my profile...let the comments flow now....
